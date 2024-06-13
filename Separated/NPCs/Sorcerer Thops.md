@@ -1,0 +1,3 @@
+# Sorcerer Thops
+
+[[Sorcerer Thops]]

@@ -1,0 +1,3 @@
+# Potentate Diallos
+
+[[Potentate Diallos]]

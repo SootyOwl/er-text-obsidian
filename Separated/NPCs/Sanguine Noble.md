@@ -1,0 +1,3 @@
+# Sanguine Noble
+
+[[Sanguine Noble]]

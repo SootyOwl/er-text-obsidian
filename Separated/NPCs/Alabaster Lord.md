@@ -1,0 +1,3 @@
+# Alabaster Lord
+
+[[Alabaster Lord]]

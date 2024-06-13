@@ -1,0 +1,3 @@
+# Isolated Merchant
+
+[[Isolated Merchant]]

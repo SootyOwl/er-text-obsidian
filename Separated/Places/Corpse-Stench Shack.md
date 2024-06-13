@@ -1,0 +1,1 @@
+### [6310600] Corpse-Stench Shack

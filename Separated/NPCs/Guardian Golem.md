@@ -1,0 +1,3 @@
+# Guardian Golem
+
+[[Guardian Golem]]

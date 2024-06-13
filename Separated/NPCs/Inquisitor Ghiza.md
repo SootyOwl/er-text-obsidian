@@ -1,0 +1,3 @@
+# Inquisitor Ghiza
+
+[[Inquisitor Ghiza]]

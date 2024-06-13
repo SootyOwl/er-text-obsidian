@@ -1,0 +1,3 @@
+# Frenzied Duelist
+
+[[Frenzied Duelist]]

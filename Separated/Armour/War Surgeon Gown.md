@@ -1,0 +1,5 @@
+### War Surgeon Gown [680100]
+
+Bloodstained white gown of the war surgeons who were effectively mercy killers.
+
+Of the surgeons that were abducted by the Lord of Blood, none were able to tame the accursed blood. None but Varré, that is; though he was an exception.

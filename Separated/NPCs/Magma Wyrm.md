@@ -1,0 +1,3 @@
+# Magma Wyrm
+
+[[Magma Wyrm]]

@@ -1,0 +1,3 @@
+# Scribe Corhyn
+
+[[Scribe Corhyn]]

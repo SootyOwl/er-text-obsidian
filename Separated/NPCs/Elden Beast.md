@@ -1,0 +1,3 @@
+# Elden Beast
+
+[[Elden Beast]]
